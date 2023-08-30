@@ -1,2 +1,2 @@
 # testgo
-https://helpdesk.me/join/258711325
+https://helpdesk.me/join/126515540
